@@ -1,4 +1,4 @@
-### Olá!! Eu sou o Douglas Miranda
+### Olá!! Eu sou o Douglas
 
 ##
 
